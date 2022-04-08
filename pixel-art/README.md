@@ -1,5 +1,0 @@
-# PROJETO ARTE COM PIXELS
-
-
-
-
